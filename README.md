@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shinderohitd19@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14BHSOdTnhsOYDA2aNcZ-2ndJ_9eSGLwW/view](https://drive.google.com/file/d/1kvOUSnoeIBom5kth7F7xrHbyUfVi4ccP/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14BHSOdTnhsOYDA2aNcZ-2ndJ_9eSGLwW/view](https://drive.google.com/file/d/1Ttc2oTtZwArtcpakQ4Ug19-SuHZBIaKF/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
